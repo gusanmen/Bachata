@@ -35,4 +35,4 @@
 35. Salida I, Basico, en 1 pasamos a la media, basico y en 1 bamboleo(cambio tiempo) y rompo-girito y me pongo al lado izq. de la chica, con la cadera la desplazo a la derecha y hago giro derecha con paso pico y base.
 36. Salida III, Basico, en 1 pasamos a la media, basico y rompo-girito y con el brazo izq. le doy giro hacia la derecha y la paro por la cintura con el izquierdo. Hago subida a la izquierda y derecha ascensor.
 37. Salida II, Basico, en 1 pasamos a la media, basico y en 1 bamboleo(cambio tiempo) y rompo-girito y doy dos giros a la chica con la izquierda y paso el brazo chica chico por encima de mi cabeza y lo dejo caer detras en mi cuello.
-38. Contragiro, En 8, hago el vaiben de brazos derecha izquierda y aqui gira la chica para que quede en butifarra, entonces el chico pasa hacia la derecha y deja ir el brazo derecho y en ocho tiene a la chica en semicerrada para hacer el 1,2,3 y 4.
+38. Contragiro, En 8, hago el vaiben de brazos derecha izquierda y aqui gira la chica para que quede en butifarra, entonces el chico pasa hacia la derecha y deja ir el brazo derecho y en ocho tiene a la chica en semicerrada para hacer el 1, 2, 3 y 4.
