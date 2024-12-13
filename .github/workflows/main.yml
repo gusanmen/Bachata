@@ -1,0 +1,12 @@
+            - name: Notify (Lark, Slack, Telegram)
+  # You may pin to the exact commit or the version.
+  # uses: echoings/actions.notify@c55ce2f7acb0e372b8a4ab6fd50b03e08cf6e363
+  uses: echoings/actions.notify@v0.1.0
+  with: Telegram
+    # Which social platform to notify
+    plat_type: # default is Lark
+    # It will be used as the head title of the notification.
+    notify_title: # optional, default is Project Updated
+    # It will be used as the content of the notification.
+    notify_message: # optional, default is 
+          
