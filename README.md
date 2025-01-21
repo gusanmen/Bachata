@@ -42,5 +42,5 @@
 41. Robo el reloj en 4 giro a la chica en enróllala, con la mano derecha le cojo el reloj y traigo su brazo a la espalda mientras me vuelvo delante de ella luego la deslío con vuelta hacia mi derecha.
 42. La paseo*
 43. Pide la mano, en 4 vuelta y pide la mano giro de la chica con dos manos y el chico se deslia, hace una bufanda baja para salida en Titanic, con el brazo sin soltar lo paso por encima de la chica espalda con espalda.
-44. Enróllala en cuatro con bufanda y girala con el brazo izquierdo desde la cintura y para que haga dos vueltas hacia la derecha.
+44. Enróllala en cuatro con bufanda y gírala con el brazo izquierdo desde la cintura y para que haga dos vueltas hacia la derecha.
 45. Paso Madrid.
