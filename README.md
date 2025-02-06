@@ -43,4 +43,7 @@
 42. La paseo*
 43. Pide la mano, en 4 vuelta y pide la mano giro de la chica con dos manos y el chico se deslia, hace una bufanda baja para salida en Titanic, con el brazo sin soltar lo paso por encima de la chica espalda con espalda.
 44. Enróllala en cuatro con bufanda y gírala con el brazo izquierdo desde la cintura y para que haga dos vueltas hacia la derecha.
-45. Paso Madrid.
+45. Paso Madrid
+46. Paso Madrid posición semicerrada
+47. Uve y circulo en 4 giro a la chica respirando en 6 vuelvo a izquierda, base hasta 1 y en 4 dos  uves y  un círculo. La expulsas y hace un muelle chocando con la mano izquierda la empujas y la traes para vuelta y posición en cerrada. Base y rompe girito, la expulsas y cruzas el pie derecho (aprieta para girar bien) para dar vuelta dejando el brazo a la altura del cuello y dejándolo  pasat por la nuca para que caiga cuando dejes de girar en la mano izquierda.
+48. -Caidita- En 4 preparas los brazos para giro a la derecha la chica queda en butifarra derecha y el chico vence el brazo derecho hacia abajo para que el izquierdo se suelte y en ese momento haces bufanda con el derecho, para quedar con otra butifarra esta vez a la izquierda previo a un giro a la chica, sigues en base hasta cuatro y lanzas la butifarra. Haces un me separo y con la izquierda giras a la chica (hacia la derecha), sueltas a la chica y la coges con la mano derecha por debajo de los bíceps y con la mano izquierda en el antebrazo, seguidamente le levantas el brazo derecho y caminas y sigue el brazo izquierdo , la giras con la palma en su espalda y ella cae hacia atrás.
